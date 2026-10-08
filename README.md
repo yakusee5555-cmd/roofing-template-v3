@@ -1,1 +1,0 @@
-# roofing-template-v3
